@@ -1,0 +1,2 @@
+# Fizikaaa-rganamiz
+Fizikaaaòrganamiz
